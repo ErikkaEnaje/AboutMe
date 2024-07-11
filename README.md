@@ -1,6 +1,6 @@
 # <h1 align="center"> ₊✩‧₊˚౨ৎ˚₊✩‧₊ Erikka Marielle M. Enaje ₊✩‧₊˚౨ৎ˚₊✩‧₊ 
 
-# ✉️ Email: condadahannahl@gmail.com
+## ✉️ Email: condadahannahl@gmail.com
 📱 Contact Number: +63 966 406 9386
 
 I'm Erikka Marielle Enaje, 22 years old, currently enrolled at New Era University pursuing a Bachelor of Science in Computer Science. 
